@@ -2,6 +2,7 @@
 
 # MY HISTORY
 ### 2017 ~ : Software, Server, Web Developer
+### 2022 ~ : LIKELION, WHITEBLUE TEAM.
 
 <br/>
 
